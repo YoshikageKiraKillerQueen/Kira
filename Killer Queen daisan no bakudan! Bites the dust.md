@@ -4,3 +4,6 @@ Meu nome é Yoshikage Kira. Tenho 33 anos. Minha casa fica na parte nordeste de 
 
 
 ![Bites_the_Dust_Infobox_Manga](https://github.com/user-attachments/assets/7d373650-444e-4cee-a363-acb5a25686e8)
+
+
+![images](https://github.com/user-attachments/assets/62c47d0b-7fdf-43b2-ab4f-b52476833b95)
